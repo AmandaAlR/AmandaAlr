@@ -1,6 +1,6 @@
 #  Olá 	:wave:
 
-Eu sou Amanda Alves, moro em Belo HorizonTe - MG  :smiley:
+Eu sou Amanda Alves, moro em Belo Horizonte - MG  :smiley:
 
 
 
